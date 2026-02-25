@@ -1,0 +1,1 @@
+# pricing_site_kiosk_goodsammed
